@@ -46,7 +46,7 @@
 ## 其他平台
 
 - [Patreon](https://patreon.com/Bookie918) — 完整版文章
-- [Threads](https://www.threads.net/@bookie918) — 每篇精華摘要
+- [Threads](https://www.threads.com/@bookie.9.18) — 每篇精華摘要
 
 ## 授權
 
